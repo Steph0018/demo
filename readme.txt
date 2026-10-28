@@ -1,3 +1,3 @@
-Je m'appelle Stéphie AHISSOU.
+Je m'appelle Stéphie AHISSOU, et j'habite à Akpakpa.
 Je suis en L2G3.
 Je suis sur la branche test. 
